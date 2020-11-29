@@ -1,2 +1,2 @@
 # Scripts
-Testing github policies 
+Free and Fair Election in Ghana
